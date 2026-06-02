@@ -1,4 +1,4 @@
-# 
+# Nativo bitmex trading bot predefinições para Mac OS | VIP bitmex trading bot predefinições para PC Windows. Com análise de volume e negociação de pares — otimizado para máximo desempenho em cada plataforma.
 
 
 
